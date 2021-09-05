@@ -3,11 +3,11 @@
 - 🌱 I’m currently learning how to code!
 - 💞️ I’m looking to collaborate on other projects!
 
-
+-----------------------------------------------------
 
 - My YouTube: FlashMightyGamer
 - My Twitter: @FlashMightyGam2
-- My YouTube: flashmightygamer
+- My Twitch: flashmightygamer
 - My Discord: 👑💫⭐𝓕𝓵𝓪𝓼𝓱𝓜𝓲𝓰𝓱𝓽𝔂𝓖𝓪𝓶𝓮𝓻👑✨🌟#7168
 
 
